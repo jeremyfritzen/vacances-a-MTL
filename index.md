@@ -2,9 +2,8 @@
 - Sites à consulter pour trouver des activités : 
 	- Site de la SEPAQ (organisme qui gère les parcs nationaux au Québec) : https://www.sepaq.com/home/index.dot?language_id=2. Tous les parc nationaux ne sont pas gérés par la SEPAQ mais il y en a quand même une bonne partie et ça vous donnera une bonne idée des activités à faire
 	- L'Espace pour la Vie : https://espacepourlavie.ca/
-- Regarder
+- regarder aux alentours de Beloeil, Québec
 - Aller sur Google Maps pour vous faire une idée de la géographie, des villes, des coins sympa à visiter, etc.
-- Notre adresse est : 180 rue Scott, McMasterville QC
 # A faire avant votre départ
 ## Banque
 - Prévoir une option "paiement en devises" (ou un truc du genre) pour avoir des frais de conversion réduits (éviter d'aller dans un bureau de change)
